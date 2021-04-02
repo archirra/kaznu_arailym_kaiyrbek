@@ -1,0 +1,1 @@
+# kaznu_arailym_kaiyrbek
